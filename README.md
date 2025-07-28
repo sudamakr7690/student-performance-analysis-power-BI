@@ -73,5 +73,5 @@ The dashboard covers:
 
 ## 📬 Contact
 
-👩‍💻 **Sujata Sinhababu**  
-[LinkedIn](https://www.linkedin.com/in/sujata-sinhababu-041705s/)
+👩‍💻 * SUDAMA KUMAR 
+https://www.linkedin.com/in/sudama-kumar-b2a5a0235?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
